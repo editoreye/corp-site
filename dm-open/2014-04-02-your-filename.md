@@ -1,1 +1,0 @@
-An Evening of Geek Speak
